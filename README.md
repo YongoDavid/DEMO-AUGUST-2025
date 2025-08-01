@@ -3,3 +3,5 @@ Another Month is here, all i have to do is stay consistent, show up and improve 
 
 O1 AUG
 New month, new day, more grind!.
+
+02 AUG
