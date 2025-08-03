@@ -11,3 +11,4 @@ AUG 03
 Sunday chill day but i am putting in light work.
 
 AUG 04
+New week, new day, same grind.
