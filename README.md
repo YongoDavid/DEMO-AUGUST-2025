@@ -23,3 +23,4 @@ AUG 07
 New day, same grind!
 
 AUG 08
+New day, same grind!.
