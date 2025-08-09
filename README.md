@@ -29,4 +29,4 @@ AUG 09
 New day, same grind!
 
 AUG 10
-
+Sunday chillday, but i am putting in light work.
