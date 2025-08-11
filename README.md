@@ -32,4 +32,4 @@ AUG 10
 Sunday chillday, but i am putting in light work.
 
 AUG 11
-
+New week, new day, neww grind.
