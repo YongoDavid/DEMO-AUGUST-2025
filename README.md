@@ -45,7 +45,7 @@ AUG 15
 New day, same grind.
 
 AUG 16
-New day, New wee, same grind.
+New day, New week, same grind.
 
 AUG 19
-
+New day, more grind on AI and MERN.
