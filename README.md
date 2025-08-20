@@ -49,3 +49,6 @@ New day, New week, same grind.
 
 AUG 19
 New day, more grind on AI and MERN.
+
+AUG 20
+
