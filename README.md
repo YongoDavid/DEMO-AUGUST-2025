@@ -55,3 +55,4 @@ New day, same grind.
 
 AUG 24
 New day, same grind
+It has been one heck of a week, but i still need to keep pushing.
