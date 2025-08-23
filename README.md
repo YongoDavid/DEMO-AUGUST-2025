@@ -59,3 +59,4 @@ It has been one heck of a week, but i still need to keep pushing.
 
 AUG 25
 New day, same grind!.
+Sunday work day.
