@@ -62,4 +62,4 @@ New day, same grind!.
 Sunday work day.
 
 AUG 25
-New week, new day same griind.
+New week, new day same grind.
